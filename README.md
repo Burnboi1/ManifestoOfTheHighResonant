@@ -1,0 +1,1 @@
+This is a work-in-progress copy of the Manifesto of the High Resonant. It will continue to be updated until I feel that it is finished. The contents you will need to get started with the lore of The Great Hush is in the most current version of the manifesto.
